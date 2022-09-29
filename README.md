@@ -1,2 +1,2 @@
-# Exercice-Cadavre-Exquis-Firstname
+# Exercice-Cadavre-Exquis
 
